@@ -16,4 +16,4 @@ Algumas informações sobre os vídeos:
 
 Informações pessoais:
 
-- Meu linkedin: https://www.linkedin.com/in/gisellyrock/
+- Meu linkedin: https://www.linkedin.com/in/giselly-rock-23a47511b/
